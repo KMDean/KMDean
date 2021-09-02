@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KMDean
+- 👀 I’m interested in learning computer networks/security and improving my french
+- 🌱 I’m currently learning réseaux informatiques, mobilité, sécurité
+- 💞️ I’m looking to collaborate on improving my french :)
+- 📫 How to reach me linkedin: @kaitlyndean1999
